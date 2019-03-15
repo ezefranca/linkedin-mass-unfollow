@@ -6,7 +6,7 @@ LinkedIn nowdays is place with a lot of "Influencers" and a lot of people sharin
 If you want to do a clean on your timeline do this steps:
 
 
-0 - Make sure to note key people to follow. Save using the best way for you this list.
+0 - Make sure to note key people to follow. Save this list using the best way for you.
 
 1 - This page on your profile: https://www.linkedin.com/feed/following/
 
